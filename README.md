@@ -25,9 +25,3 @@
 </ul>
 
 
-<h3>Protecting Yourself</h3>
-
-<p>To stay safe, always download software from trusted sources, and avoid websites that offer cracked or pirated software.</p>
-
-
-<p>Remember, using legitimate software protects your computer, your data, and yourself from legal repercussions.</p>
