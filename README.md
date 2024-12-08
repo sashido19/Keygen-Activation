@@ -3,7 +3,7 @@
 
 <h1>Understanding Software Activation: Legal Alternatives and Risks</h1>
 
-<p dir="ltr"><img src="placeholder_safe_software.jpg" alt="Safe Software Practices" style="max-width: 100%;"></p> <!-- Replace with an image illustrating safe software practices -->
+
 
 | Information | Details |
 |:-------------:| :-----:|
